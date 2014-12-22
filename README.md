@@ -35,42 +35,75 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The famous historie of the renouned and valiant Prince Robert surnamed the Bruce King of Scotland e&
+At Adenburgh the twentie thrie
+day of december 1613.This book ſeene and alloued and therefore
+may beTHeit is ſindrie Errours askepd both in the Orthographe and want of ſingle letters.
+But inſpetiall t
+1. To the moſt Honorable and moſt Accompliſhed
+Erles, William Erle of Angus,
+and William Erle of Morton.
+
+1. The preface or rather an aduertiſment
+to the Reader before he read this Poem of ſome
+ſpetiail points to be obſerued in the
+whole worke with the vſe
+of ſome partes ſeeming
+Fabolus
+therein.
+
+1. To the Author.
+
+1. In prais of the prais worthie Author.
+
+1. To his deare freend the reſtorer of the
+famous Bruce his ſtorie.
+
+1. To the Author.
+
 #####Body#####
 
-1. Caput. 1.
+1. The firſt Booke of
+THE FAMOVS
+HISTORIE OF THE
+Excellent & moſt valiaunt Prince
+ROBERT Surnamed the BRVCE
+King of SCOTLAND corrected
+and enlarged by Patrik Gordon
+Gentleman.
 
-1. Cap. 2.
+    _ Caput. 1.
 
-1. Cap. 3.
+    _ Cap. 2.
 
-1. Caput. 4.
+    _ Cap. 3.
 
-1. Caput. 5.
+    _ Caput. 4.
 
-1. Caput. 6.
+    _ Caput. 5.
 
-1. Caput. 7.
+    _ Caput. 6.
 
-1. Caput. 8.
+    _ Caput. 7.
 
-1. Caput. 9.
+    _ Caput. 8.
 
-1. Caput. 10.
+    _ Caput. 9.
 
-1. Caput. 11.
+    _ Caput. 10.
 
-1. Caput. 12.
+    _ Caput. 11.
 
-1. Caput. 13.
+    _ Caput. 12.
 
-1. Caput. 14.
+    _ Caput. 13.
 
-1. Caput. 15.
+    _ Caput. 14.
 
-1. Caput. 16.
+    _ Caput. 15.
 
-1. Caput. 17.
+    _ Caput. 16.
+
+    _ Caput. 17.
 
 **Types of content**
 
